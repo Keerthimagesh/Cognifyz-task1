@@ -41,9 +41,9 @@ During the completion of this task, I learned and practiced:
 
 📩 Connect With Me
 
-         🔗 [LinkedIn](https://www.linkedin.com/in/keerthi-priya-235633326?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+   🔗 [LinkedIn](https://www.linkedin.com/in/keerthi-priya-235633326?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
-        📧 keerthipriyamagesh84@gmail.com
+   📧 keerthipriyamagesh84@gmail.com
 
 🧠 Author
 
