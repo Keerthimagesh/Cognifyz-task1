@@ -47,5 +47,5 @@ During the completion of this task, I learned and practiced:
 
 🧠 Author
 
-Keerthi Priya Magesh — Intern at Cognifyz Technologies 💼
+Keerthi Priya Magesh — Intern at Cognifyz Technologies 
 
